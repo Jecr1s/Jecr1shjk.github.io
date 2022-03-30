@@ -1,1 +1,2 @@
-# Jecr1ss.github.io
+# **Welcome**
+# *Made by Jecris Lorenzo L. Gangcuangco*
