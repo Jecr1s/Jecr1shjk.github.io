@@ -2,5 +2,8 @@
 
 
 # These Commanders can give you an advantage in battles
-No. 3
+#No. 3 
+#Sun Tzu - Tactical Genius
+
+
 
